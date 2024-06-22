@@ -7,22 +7,27 @@ I'm working on making illustrations that relate to my therianthropy. This reposi
 
 ### Blue Impulse
 ![BlueImpulseMode04.png](https://github.com/SheilaGrace/illustrations/blob/main/BlueImpulseMode04.png)
+
 Single album jacket art for Baumarius's 'Blue Impulse'.
 
 ### Feral Soli
 ![FeralSoli02.png](https://github.com/SheilaGrace/illustrations/blob/main/FeralSoli02.png)
+
 Theriotype portrait for my dear friend.
 
 ### Let's Rock
 ![LetsRock02.png](https://github.com/SheilaGrace/illustrations/blob/main/LetsRock02.png)
+
 Originally free gift art for a 'friend' but it came out better than expected.
 
 ### Raven Brand 2 - Grim Edge
 ![RavenBrand22.png](https://github.com/SheilaGrace/illustrations/blob/main/RavenBrand22.png)
+
 Sort of vent art. 'Raven Brand 2 - Grim Edge' is the name of the red blade, representative of my curse.
 
 ### Solivagant Borealis
 ![SoliJacketArt02.png](https://github.com/SheilaGrace/illustrations/blob/main/SoliJacketArt02.png)
+
 Single album jacket art for Baumarius's 'Solivagant'.
 
 Baumarius (AKA Syamori or Lucas Masoch) has my authorized exclusive permission to use 'Blue Impulse' and 'Solivagant Borealis' for his jacket art.
